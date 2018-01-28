@@ -1,0 +1,2 @@
+# MIGO-Struatos
+Migo Technologies is a technology company building fully automated, smart, compact clothing care devices to take away the hassles of ironing.  Building the future through Innovation and Design. Providing the World Accessibility and Comfort with Automated Solutions. Migo's Flagship product is the Migo Automated Clothing Care. Providing Fast and Effortless Garment Care in a compact device, designed with customers in mind. 
